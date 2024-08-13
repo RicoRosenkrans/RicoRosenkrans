@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RicoRosenkrans
+- 👀 I’m interested in AI, Macro Economy, Tech, and Business Development - but most of all my two kids!
+- 🌱 I’m currently learning to become better at project management, general structure, coding, and becoming a better me overall.
+- 💞️ I’m looking to collaborate on mostly CRMScripting and AI projects.
+- ⚡ Fun fact: I have been on the Danish National Rugby Team, and was the fastest Fullback in Denmark.
